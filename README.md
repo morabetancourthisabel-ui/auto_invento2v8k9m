@@ -1,1 +1,0 @@
-# auto_invento2v8k9m
